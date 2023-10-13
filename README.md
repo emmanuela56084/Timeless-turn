@@ -1,2 +1,2 @@
 # Timeless-turn
-This is an obby where you can where you can test your skills and improve gaming
+This is a place where all sort of roleplays can take plaxe
